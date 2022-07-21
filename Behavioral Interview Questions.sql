@@ -117,13 +117,6 @@ One time that I went out of my comfort zone is when I was working in Capgemini a
 
 What I learned from this experience is that how much it is important to collaborate with people and help them in acheiving their learning Goals. Because my training helped those interns to clear Client interviews and work in the projects efficiently.   
 
-
-1. Why did you decided to work abroad?
-I decided to work abroad because its much more different projects and opportunities to participate in and thats basically it.
-2. What first attracted you to the idea of living and working in Estonia?
-Since 2012 I was looking to start a company in Estonia. So this year i found that its easier to work in a job first and then start a Company. so thats how i did it
-3. 
-
 Describe what you are looking for in your next job
-Im looking for a great, enthusiastic team to work for that will provide me with challenging, interesting work that I can learn from and contribute more to the health and educational space but that is not a must.  
+Im looking for a great, enthusiastic team to work for that will provide me with challenging, interesting work that I can learn from and contribute.  
 --*********************************************************
